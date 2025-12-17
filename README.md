@@ -3,7 +3,7 @@
 
 
 
-Na aula não tinha os "materiais de apoio" que o felipe falou, logo eu fiz do meu jeito, isso foi bom de certo modo pois fez eu trabalhar em uma possível adversidade.
+Na aula não tinha os "materiais de apoio" que o felipe falou, logo eu fiz do meu jeito, isso foi bom de certo modo, pois fez eu trabalhar em uma possível adversidade.
 
 
 
